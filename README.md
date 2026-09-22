@@ -1,1 +1,1 @@
-# hrar
+# instagram-privacy-policy
